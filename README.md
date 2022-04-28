@@ -5,6 +5,9 @@ Mixed Streaming API
 
     https://paidcodes.albdroid.al/Players/Top_For_Top_IO
 
+# VIDEO HELP
+    https://paidcodes.albdroid.al/Players/Top_For_Top_IO/HELP/
+
 # KETO LISTA PERMBAJNE
     ---------------------------------------------------------------------------------------------------
     SHQIP TE NDRYSHME
